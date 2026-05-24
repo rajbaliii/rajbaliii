@@ -95,7 +95,7 @@ I work with both **international and local clients**, delivering custom software
 
 💼 LinkedIn: https://linkedin.com/in/rajbaliii
 
-📧 Email: your_email_here
+📧 Email: rajbaliofficial@gmail.com
 
 🌐 Portfolio: Coming Soon
 
